@@ -1,0 +1,1 @@
+## **ya Allah** give us power
